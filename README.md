@@ -4,7 +4,6 @@ asdg
 asdgjsahdgjsahdjj psajdglkjweojtowqejt 
 
 
-ASDGsadg sad g
 sadgwe gGSDS
 dfasdfgdgd
 
